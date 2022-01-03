@@ -20,6 +20,8 @@ Ultimate Carnage TM.rar
 https://mega.nz/file/esxXnYBS#MGXMr9SJtc0R89OEbIP8x7z6-lFSLsRLevc95RCURyM            Date Upload  25 dec 2018
 Ultimate Venom TM New Release.rar
 https://mega.nz/file/DpoR0STL#KZR_zo4m66nCR324qi4Voeo_b2d3MNe-Qcfl2PlIFdk            Date Upload  18 nov 2018
+Ultimate Spider-Man Preview Final PC 15.07.2005.zip
+https://mega.nz/file/bown2IoQ#NJC0PqKxIxfGWHvZT2YgJUSu7YOC1hCeXg1A1QaQ5vQ            Date Upload  02 jan 2022
 
 # USM-Consoles-Preview-Beta-Roms-Made-by-Treyarch-Leaked
 Ultimate Spider-Man (Beta Preview).iso
